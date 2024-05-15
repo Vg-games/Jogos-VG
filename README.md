@@ -1,1 +1,1 @@
-# Jogos-VG
+Vitor Gabriel Oliveira é um auxiliar administrativo no fórum, nascido em Itumbiara em 02/08/2006. Com formação em Desenvolvimento de Sistemas, ele se destacou por sua dedicação e habilidades na gestão eficiente de processos administrativos. Atualmente, contribui para o bom funcionamento do fórum, garantindo o suporte necessário aos procedimentos judiciais. Fora de seu trabalho, Vitor Gabriel desfruta de explorar novas tecnologias e passar tempo ao ar livre.
